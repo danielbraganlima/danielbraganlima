@@ -12,7 +12,7 @@ Me chamo Daniel Braga Nunes Lima
 
 📱 instagram - @danielbraganlima
 
-![](https://tenor.com/view/gustavo-lazaro-lol-laughing-out-loud-laughing-hahhaha-gif-12506703)
+![](https://media1.tenor.com/m/fPb5FBsH6VMAAAAd/gustavo-lazaro-lol.gif)
 
 
 
